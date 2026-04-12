@@ -18,3 +18,8 @@ Una fogata, o lo que parece serlo, atrae a los personajes. Reunidos alrededor, d
 En un momento de lucidez, Vasham distingue el rastro de lo que parece una carreta. Juntos huyen, a excepción del valiente bárbaro, quien se queda a luchar contra las criaturas. Tartuk no sabe que su fuerza es inútil contra tales seres; es derrotado y, poco a poco, arrastrado hacia el oscuro bosque.
 
 
+Sesión 2 (10 de abril de 2026)
+
+Los intentos de Tartuk por liberarse no resultaban efectivos; las extrañas criaturas lo debilitaban poco a poco hasta que perdió la conciencia. El resto del grupo acudió en su ayuda. Kirdal, el paladín, asestó un duro golpe con su espada, pero el filo atravesó el vacío sin dañar a nadie. Los ánimos estaban por los suelos y la desesperación, ante la falta de un plan, se reflejaba en sus rostros mientras Torken forcejeaba con las sombras para no perder a Tartuk, quien seguía siendo arrastrado hacia la oscuridad.
+
+Fue entonces cuando Vasham lanzó uno de sus hechizos: una llamarada iluminó la noche y cayó directamente sobre el cuerpo de Tartuk, cegando y encandilando a todos. Aunque el fuego lastimó levemente al bárbaro, el estallido de luz logró ahuyentar a las criaturas, al menos por ahora.
