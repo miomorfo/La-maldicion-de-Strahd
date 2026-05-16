@@ -32,3 +32,21 @@ Kirdal montó sobre el animal de tiro —un caballo blanco que estaba uncido a l
 Las vestimentas resultaron ser capuchas resistentes al agua, adornadas con unas llamativas orejas de gato en el gorro. Vasham analizó la piedra; sus ojos expertos detectaron una serie de runas que cambiaban según el ángulo de visión, pero, bajo su fugaz y errático criterio, decidió que no era algo de importancia, perdiendo su momento de lucidez tan rápido como llegó.
 
 Tras un breve intercambio de palabras dentro de la carreta —durante el cual Vasham, curiosamente, invocó una runa de protección sobre Torken con una peculiar forma fálica—, el destino y el azar quisieron que el mago quedara al mando de las riendas. Así, emprendieron el viaje hacia el pueblo por un camino adoquinado. Bajo una lluvia torrencial y la luz de la luna, divisaron a lo lejos, imponente sobre una colina a su derecha, la silueta de un castillo.
+
+
+## **Sesión 3 (24 de abril de 2026)**
+
+
+Bajo una lluvia torrencial que dificultaba la vista, Vasham guio la carreta hasta una posada solitaria. En el exterior, un cartel maltrecho se balanceaba con el viento; la oscuridad y el agua solo permitían leer una palabra inquietante: "Sangre".
+
+Mientras Kirdal se quedaba fuera para asegurar al caballo, el resto del grupo entró al lugar. La atmósfera era pesada. Al fondo, tres figuras permanecían en las sombras con los rostros ocultos, mientras que en una esquina, un hombre solitario parecía sumido en sus pensamientos o en un sueño profundo, apenas iluminado por una vela y acompañado de una jarra de cerveza. En la barra, un tabernero de aspecto demacrado limpiaba una copa con absoluta apatía.
+
+El grupo intentó comprar alcohol ofreciendo una moneda de oro, pero el tabernero, tras mirarla con desprecio, la rechazó tajantemente afirmando que no aceptaban ese tipo de moneda. Tras varios intentos infructuosos de diálogo y ante la actitud esquiva del hombre, Torken perdió la paciencia y golpeó la barra con fuerza. Al instante, las tres figuras del fondo se pusieron en pie y desenfundaron sus armas. Ante la amenaza, el guerrero optó por una actitud pasiva, levantando las manos en señal de paz, lo que hizo que los desconocidos volvieran a sentarse.
+
+Mientras tanto, en el exterior, Kirdal investigaba la parte trasera de la posada. En la oscuridad, tropezó con un objeto que, a simple vista, parecía una rama o un palo, y decidió recogerlo.
+
+Dentro, Vasham observaba con cautela por la ventana, llegando a divisar a lo lejos la silueta de una anciana que arrastraba una carreta, aunque decidió no mencionar nada al grupo. Por su parte, Tartuk y Torken se acercaron al hombre de la vela. Este, aunque no reveló su nombre, notó que eran forasteros y les ofreció un trato: les entregaría un saco de monedas locales, útiles para comerciar en Barovia, a cambio de un favor. Les indicó que, de aceptar, debían buscarlo en su casa, ubicada en una colina al final del camino.
+
+Al salir de la posada, se reunieron con Kirdal, quien mostró el objeto que había encontrado. Vasham, tras un breve vistazo, confirmó lo peor: no era una rama, sino un hueso humano. Al inspeccionar el lugar del hallazgo, descubrieron los restos de un cuerpo carbonizado, aunque no lograron encontrar ninguna pertenencia o pista adicional entre las cenizas.
+
+Sin más que hacer en aquel lugar hostil, el grupo subió a la carreta y emprendió el viaje hacia la colina mencionada por el desconocido. Mientras avanzaban, el clima comenzó a dar un respiro y las primeras luces del alba asomaron en el horizonte. Por primera vez, los aventureros verían las tierras de Barovia bajo la luz del día.
